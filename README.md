@@ -1,1 +1,187 @@
-# laulpogan.github.io
+<!DOCTYPE html>
+<html lang="en">
+<head>
+        <title>Life on the event horizon</title>
+
+</head>
+
+<h1> I should have liked to live this new life within my old life, but there
+was only this.
+</h1>
+<p>
+It began with a fortune told. An assumption of familiarity which set me off-guard. Which set me down the path of the unmentionables. 
+</p>
+<p>There is a chittering like a record’s skip. It’s a sound that when I hear it, it makes me think I’ve heard it before. 
+</p>
+<p>Steeled as the dagger drips, my wrist aches. Her blood pools and she screams and screams. I tear her headscarf from her and wrap it tight around her throat, my fists clenching and unclenching on the fabric. I feel vomit working its way to upchuck in the back of my throat.</p>
+<p>There needsmust be a desire to return home in the second season. As if all the things one loved were discarded, bastardized, and polluted. It is a drama of industry, of progress, of plot. We take sick sacrament in it, bathe in the blood of the pasts’ sacrifice. We mourn while marching on. 
+</p>
+
+<p>She sighs. “I was just thinking about you. So much of the poetry we write together is dreamt of drink and desperation.”
+</p>
+<p>The day progressed in an endless sequence of dead moments. The angels sing with the sound of metal wires twanging and missile engine whine. In the process of becoming, having a child you’ve already become. 
+</p>
+<p>Person of the never communication. She’s lied awkward, her disrobing wonder. It was not a non-love story, it just was not a lasting one. 
+</p>
+<p>“I’ve always loved the simple idiocy of ‘What doesn’t kill you makes you stronger’.” I say, grinning and picking at my nails offhandedly. I let the words hang in the air a moment before I bring down the blade to sever her arm at the elbow. 
+</p>
+<p>“My name is Pillow Rich,” she blushes and looks down, “but my friends all call me Pillow, or Pil.” 
+</p>
+<p>“Baby,” I grin. “That’s just pillow talk”
+</p>
+<p>In Zen Buddhism this is literally one of the ways to learn to see yourself. Here's a quote from Cheri Huber
+</br></br>
+<i>"If the problems you have been trying to solve your whole life could have been solved by you, the way you are, and the way you tried to solve them, they would have been solved by now. Stop trying to solve them and learn to accept them. They aren't problems but just your life and the way it is. Once you see them differently, as part of you, then you can change who you are."</i>
+</p>
+<p>The knife arm moves.
+</p>
+<p>There isn’t much worse than the look of a person who has finally given up on you. Crystalized pity and fatigue mixed with the relief of passing kidney stone. 
+
+</br></br>That moment of disjoinder chops away at the foundations of one’s identity, the impossibility of uprooting the need to be wanted from our sense of self.
+</br></br>That empty, patient, languid gaze of someone who knows your shackles no longer hold them. What selfish cowards we are to feel pain in that. 
+</p>
+<p>The act of feeling frustrated with a lack of acceptance and impulse control is merely the second stage of four in mastery: </br>
+First there is unconscious incompetence.</br>
+Then concious incompetence.</br>
+Then concious competence.</br>
+Then unconscious competence.</br>
+</br></br>Feeling content is a state of unconscious competence in the skill of acceptance.
+</br></br>It is the state at which grief has subsided, and only comes back in further and further waves. Much work was done to reach this point that on the outside feels only like pain.
+</br></br>Those quiet points in the middle of the storm, where everything has been terrible , and will continue to be terrible- but for the moment there is peace- that is concious competence in acceptance. These are the moments you realize your grief will wane, and eventually subside.
+</br></br>So right now? When you are in the thick of it? Hurting and striving and gnashing your teeth while cursing yourself and the world for this pain? You are conciously incompetent at accepting. You are are not numb to your pain as you were when you were unconsciously incompetent. And it can feel very appealing to crawl back to that state. I'll tell you this: you can't. You've seen the old woman in the picture instead of the cup, and now you won't be able to un-see it. You'll forever know it's there.
+</br></br>So the only way out is through. Every bit of pain and discomfort and frustration you suffer in cursing your inability to exist at peace, to move on, is not fruitless. It is practice. It is work- towards mastery of acceptance, and mastery of yourself. 
+</p>
+<p>In a culture obsessed with self-optimization, “<i>we are being sold on the need to upgrade all parts of ourselves, all at once, including parts that we did not previously know needed upgrading,</i>” Alexandra Schwartz wrote in The New Yorker once upon a time.
+</p>
+<p>Reports that say that something hasn't happened are always interesting to me, because as we know, there are known knowns; there are things we know we know. We also know there are known unknowns; that is to say we know there are some things we do not know. But there are also unknown unknowns—the ones we don't know we don't know. And if one looks throughout the history of our species, it is the latter category that tend to be the difficult ones.</br></br>There is an uncountable number of things that you will never know. As a result, we have to be selective not just with what we learn, but with what we choose to ignore.
+</p>
+<p>“What kind of writing do you do?” I ask. She grins at me and recites:
+</br><i>“Once there was a beautiful albino lady crocodile who moved to San Francisco for purpose. She loved long time friends but their hair was pigtails. Daddy's favorite warm pocket favored his mother's influence. Of course Instagram built a ultimate battle ground for strippers and pigtails. Battling strippers and their cohorts succumbed to rare diseases with pigtails. Escaping four reptiles entailed lizardly a lounge-chair emergency yet their pockets were filled with candy and regret. Back in Vegas she galavanted around downtown and slummed backwards upwards and sideways. Crocodiles, daddys fought marsupials under the Vegas sign. Authors wrote several epic often retold epics. Daddy lurved pigtails. Frothing like a space potato.“</i>
+</br></br>“Oh.” I stammer. “That’s very nice.”
+</br>“Thank you!” She smiles, alight with pride
+</br></br>“What does a space potato look like?” I ask
+</br>“A normal potato but further away” She grins. 
+</p>
+<p>The apartment complex was silent, and I couldn't hear any noise from the street
+In my head I concocted a fantasy where she wasn't just the only tenant of the building, but the city. The only woman in San Francisco. Plying her trade to ghosts and travelers who'd come to see the empty streets of a once great place.
+
+</br></br>In my fantasy, I don't know who was keeping the lights on, and as I wondered the antique elevator shuddered to a halt at the 4th floor, and I awkwardly wrestled my bicycle through the swinging door that always wanted to close, and the sliding grate that was spring loaded to stay shut.
+</br></br>I don't know what I felt in that moment? Relaxed? Waiting for some imminent Doom? I stopped in the lobby to write my thoughts down, and that brings us to now. My stomach is rumbling.
+</p>
+<p>It would be 100 times easier if we were young again
+</p>
+<p>"Thank you so much
+Thank you for everything
+Thank you for saving my life
+Thank you so much"
+</p>
+<p>Someone once told me "the best part of recovery is forgiving yourself.” But isn’t that what we all struggle with every second of every minute of every day?
+</p>
+<p>I buy a SpongeBob popsicle and a Snickers ice cream bar from the deli and head back across the street to studio.
+</br></br>The deli looked quiet and unassuming from outside-- it was plastered in loto ads and EBT signs. Inside though, people gather near the front counter or the sandwich counter, talking in hushed tones on the phone or to each other. Most speak Spanish or another language I can't place. A little girl is begging for icecream. Someone behind me says "your grandma just got paid, ask her."
+</br></br>Her grandmother says "it better be under $1.56. I'm not paying $2.50 for no icecream."
+</br></br>I am still rummaging in the freezer drawer. High. Deciding on my ice cream binge. The exchange can't help but happen beside me. She selects a SpongeBob popsicle after I pick one up while pursuing.
+</br></br>I think about this as a slice of life, the near cramped fullness of the place-- unexpected this far into the Sunset. There is a open Corona on the counter next to the cash register, beaded with persperation. Still cold, no lime. I look behind the counter to see two twin girls- maybe 3 or 4 years old- slumped against one another in an office chair dozing. As I turn the corner to leave an old man and a foreign woman are cajoling a grey and white kitten who has sprawled out in the sunlight on the walkway to the exit. I step over it.
+</br></br>I walk across the street tucking into my SpongeBob popsicle and think about writing all of this down. How many details I will forget and how this isn't my neighbourhood and maybe this isn't my Thursday evening at the local deli moment to share.
+</br></br>The popsicle is artificial fruit punch, strong and chemical-tangy. I eat it's gum eyes and tuck the disgusting remainder into a curbed trash bag. Then I tear open the Snickers, passing through the black rolling gate into the parking lot and climbing up the steps of the studio.
+</br></br>The sun is setting when I return, and one chair is set up perfectly to watch the sunset through a back window. It is ignited in a column of sunlight, highlighted as the only chair in the room worth sitting in. 
+</p>
+<p>Each thing takes its small flavors of us with it.
+And in becoming accustomed.
+We become converts.
+We become devotees.
+</p>
+<p>She smiles at me. Her lips split to reveal a row of withered teeth somehow still bleach white. “I challenge the assumption that speech must have a point.”
+</p>
+
+<p>So much of society is assumptions of function.
+</br></br>It’s how those demons get in, creep in at the corners that you assumed were sealed because they looked it.  No one thought to test their waterproofing, and you didn’t try to because you are sure someone must have in the past.
+</br></br>Assumptions of function lead to accidents, misunderstandings, frauds. Murders.
+</p>
+<p>The act of saying something is often times more important than what is said. 
+</p>
+<p>Emotions give me emotions give me emotions give me emotions give me emotions let me work let me work let me work give me emotions give me emotions give me emotions.
+</p>
+<p>I visit my goddess in her studio to discuss pornography. The artist produces a tin of photos of her former mistress in what would be considered scandalous pictures for the time, without a hat, without a coat, with her bare back turned to the camera. She explains how the standards of the day made these photos so out of the ordinary.
+</br></br>Unable to control my excitement, I blurt out a request to buy the tin. I inmediatetly apologize, ashamed. To which the darling laughs whole-heartedly and says "Don't worry my boy. You should have seen Dali!"
+</br></br>I shake her hand and walk to the door. I stop, turn and sigh at the beauty. I make fists that clench and unclench. I remove my hat.
+</p>
+<p>The next thing I remember is preparing a meal, laughing and singing in celebration. Her head is driven through with a spiral press on the table, and I am disassembling her tin with sharp metal clanging. As I slide apart the last two pieces, I discover a dated postcard hidden at the bottom, reading "fond regards from the dearly deceased"
+</br></br>There seems to be writing under the stamp, and I carefully peel it back to reveal: </br>
+    "[My Name]</br>
+1230 Copp St.</br>
+</br></br>
+San Francisco, 94150</br>
+November 12, [The year this occurred]</br>
+Mid afternoon</br>
+Stabbed, Strangled with my own headwrap"</br>
+</br>
+In a cold sweat, I flip the stamp over to its front, revealing the date to be nearly ten years before my birth.
+
+</p>
+<p>Flirtation:</br>
+These delicate things</br>
+That hang in the balance</br>
+
+Of what we can but don't discuss</br>
+
+</p>
+<p>There is more road behind me than before me, but it was well-traveled.
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+    <script src="js/jquery-2.1.4.min.js"></script>
+    <script src="js/bootstrap.min.js"></script>
+    <script src="js/owl.carousel.min.js"></script>
+    <script src="js/magnific-popup.min.js"></script>
+    <script src="js/circle-progress.min.js"></script>
+    <script src="js/main.js"></script>
+
+
+    <script>
+        function shuffle(elems) {
+ 
+    allElems = (function(){
+    var ret = [], l = elems.length;
+    while (l--) { ret[ret.length] = elems[l]; }
+    return ret;
+    })();
+ 
+    var shuffled = (function(){
+        var l = allElems.length, ret = [];
+        while (l--) {
+            var random = Math.floor(Math.random() * allElems.length),
+                randEl = allElems[random].cloneNode(true);
+            allElems.splice(random, 1);
+            ret[ret.length] = randEl;
+        }
+        return ret; 
+    })(), l = elems.length;
+ 
+    while (l--) {
+        elems[l].parentNode.insertBefore(shuffled[l], elems[l].nextSibling);
+        elems[l].parentNode.removeChild(elems[l]);
+    }
+ 
+}
+ 
+ 
+// Usage:
+shuffle( document.getElementsByTagName('p') );
+ </script>
+
+</body>
+</html>
