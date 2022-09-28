@@ -24,5 +24,8 @@
  
 }
  
- 
+  function shuffleLine(elems) {
+      elems = elems.split(" ");
+      shuffle(elems);
+  }
 
