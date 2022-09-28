@@ -25,5 +25,4 @@
 }
  
  
-// Usage:
-shuffle( document.getElementsByTagName('p') );
+
