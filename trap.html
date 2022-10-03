@@ -1,0 +1,13 @@
+---
+title: Trap
+layout: default
+---
+{% for line in site.data.trap %}
+        {% assign reLine = ""%} 
+        {% assign words = line.line | split: " " %}
+        {% for word in words %}
+                {% assign word = word | append: "  " %}
+                {% assign reLine = reLine | append: word %}
+                {{word}}
+        {% endfor %}
+ {% endfor %}

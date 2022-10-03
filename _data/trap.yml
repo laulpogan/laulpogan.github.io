@@ -1,0 +1,28 @@
+
+- line: <p>
+                <rand1>seek</rand1> 
+                <rand1>not</rand1> 
+                <rand1>the</rand1>
+                <rand1>wild</rand1> 
+
+        </p>
+- line: <p>
+                <rand2>animal</rand2> 
+                <rand2>panic</rand2> 
+                <rand2>trapped</rand2>
+                <rand2>limb</rand2>
+
+        </p>
+
+- line: <p>
+                <rand3>in</rand3> 
+                <rand3>its</rand3> 
+                <rand3>stead</rand3> 
+
+        </p>
+
+- line: <p>
+                <rand>human</rand> 
+                <rand>calm</rand> 
+        </p>
+        
